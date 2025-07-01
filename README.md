@@ -46,9 +46,4 @@
 
 ---
 
-### 🌟 Featured Projects
-
-
----
-
 _Thanks for visiting my profile!_ 🚀
